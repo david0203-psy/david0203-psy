@@ -36,15 +36,23 @@ Digital Psychiatry Lab · Seoul, Korea
 - Member, Digital Health Expert Evaluation Committee, Ministry of Health and Welfare (2022–)
 - Member, Medical Device Committee (New Development – Digital Health Subcommittee), Ministry of Food and Drug Safety (2021–)
 
+### Other Advisory Roles
+
+- Planning Committee Member, Hongreung Forum (2023–)
+- Advisor & Partner, Digital Healthcare Partners (2018–)
+
 ### Academic Society Leadership
 
 - Korean Neuropsychiatric Association — Director of Future Strategy (2024–); Member, Academic Committee (2022–)
 - Korean Society of Digital Therapy — Director of Academic Affairs (2024–)
 - Korean Academy of Sleep Medicine — Director of Information (2022–)
+- Korean Society for Schizophrenia Research — Board Member (2026–)
 - Korean Society for Bipolar Disorders (ISBD Korea) — Director of Public Relations (2026–)
+- Korean Medical Metaverse Society — Chair, Medical Research Committee
 
 ### Selected Honors
 
+- Top 1% Published Authors, JMIR Publications (2026)
 - Whanin Academic Award, Korean Neuropsychiatric Association (2025)
 - Korea University Seok-tap Research Award (2023, 2024, 2025)
 - Minister's Commendation, Ministry of Science and ICT (2022)
