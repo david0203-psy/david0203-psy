@@ -48,7 +48,7 @@ Digital Psychiatry Lab · Seoul, Korea
 - Korean Academy of Sleep Medicine — Director of Information (2022–)
 - Korean Society for Schizophrenia Research — Board Member (2026–)
 - Korean Society for Bipolar Disorders (ISBD Korea) — Director of Public Relations (2026–)
-- Korean Medical Metaverse Society — Chair, Medical Research Committee
+- Korean Medical Metaverse Society — Chair, Medical Research Committee (2025–)
 
 ### Selected Honors
 
