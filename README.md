@@ -1,6 +1,6 @@
 # Chul-Hyun Cho, M.D., Ph.D.
 
-**Psychiatrist · Professor, Korea University College of Medicine**
+**Psychiatrist · Professor, Korea University College of Medicine**<br>
 Digital Psychiatry Lab · Seoul, Korea
 
 [![ORCID](https://img.shields.io/badge/ORCID-0000--0002--1663--9680-A6CE39?logo=orcid&logoColor=white)](https://orcid.org/0000-0002-1663-9680)
